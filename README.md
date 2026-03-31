@@ -1,1 +1,1 @@
-# lamka-south-abp-privacy-policy
+# emergency-response-noney-privacy-policy
